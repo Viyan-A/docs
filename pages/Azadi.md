@@ -1,0 +1,43 @@
+- The RSS promoted the idea of "One nation, one religion, one language".
+- The British hero Sir Henry Lawrence died defending the British Residency during the siege of Lucknow in the 1857 "Indian Mutiny". He authored a law that forbade forced labour , infanticide and the practice of Sati.
+- On October 7 2001 ,  the Bharatiya Janata Party (BJP) then in power in the state of Gujarat , removed the chief minister Keshubhai Patel and elected Narendra Modi , a popular figure in the RSS in his place.
+- The partitioning of Urdu began in the second half of the nineteenth century.
+- The Devanagari movement's first victory came in 1900 , when Anthony MacDonnell who was the lieutenant governor of North-Western provinces and Oudh, issued an order allowing the use of the Devanagari script in addition to the Persian script in the courts.
+- Hindi and Urdu started being referred to as separate languages.
+- People on both sides stepped in to partition the languages.
+- On the Hindi side, whatever was of Persian influence as well other languages thought to be unsophisticated vernaculars, was removed over time.
+- Sanskrit began to replace Persian, though Sanskrit was the language of ritual and worship, the language of priests.
+- The vocabulary of Sanskrit was not suitable for every day use. It is not a language which is suitable for toil, struggle or grief. It was not the language of song or poetry for most people.
+- There were multiple other dialects which were spoken such as Awadhi, Maithili, Braj Bhasha, Bhojpuri and many others.
+- The Urdu canon erased the anti-caste Bhakti poets such as Kabir, Surdas, Meeram, and Raskhan, a Muslim devotee of Krishna.
+- The Hindi canon erased the greatest of Urdu poets, Mir & Ghalib.
+- Something alike was in motion in the aspect of Hindustani classical music although it hadn't yet been divided into Hindu classical music and Muslim classical music.
+- Fortunately, the progressive poets and writers, the best ones, were not affected by this pressure.
+- They continued to make and produce literature and poetry that was rich in the respective languages and they were very aware as to what was being done to their language.
+- But eventually, the newer generation appears whose formal education comes from "new" Hindi books that have to be approved by government committees, will find it harder to restore their legacy.
+- Today, most of the younger generation of Urdu speakers in India cannot read the Persian script. They can read Urdu only in the Devanagari script.
+- Urdu is now not just seen as a Muslim language, but rather as a Pakistani language. This makes it criminal or wrong in the eyes of many people.
+- In March 2017, 2 Muslim members of the legislative assembly of UP were not allowed from taking their oath of office in Urdu.
+- Wali Dakhani , the Wise Man of the Deccan was a 17th century poet who was also known as Wali Aurangabadi and Wali Gujarati.
+- He wrote in Dakhani Urdu which was an idiom that was not familiar to the court poets in the north.
+- They wrote primarily in Persian most of the time.
+- Although he wrote in Urdu, he was the first poet in India to present his poetry in the form of a diwan - a collection that was arranged in the Persian tradition in which poems were presented in alphabetical order in 3 mandatory sections :
+- Masnavi - narrative poems
+- Marsiya - elegiac poems commemorating the martyrdom of Hussain
+- Kasida - the tradition of singing praise to warriors
+- Wali Dakhani's diwan took the group of poets, all of those who wrote in Persian by storm. He became a cultural bridge between the north and the south, and the founding father of Urdu poetry. In this way he has played a massive role.
+- A modern-day mob destroyed his shrine, instead they could've just as easily valorized and respected Wali Dakhani for being the man who influenced poets who wrote in Persian to write in Urdu.
+- He is the man responsible for turning the writing of Urdu into high literature.
+- The destruction of Wali Dakhani's grave during the Gujarat massacre in 2002 was not the only incident which took place in a similar way. During those weeks, in Baroda a mob heavily damaged the grave of Ustad Faiyaz Khan who is one of the most accomplished and respected singers in the Hindustani classical tradition.
+- Multiple years later, in a riot which took place during the 1970's a mob burned down the house of Rasoolan Bai.
+- The names Bharat, Hindustan & India are names that are used interchangeably for the country we live in. "Akhand Bharat" , this means undivided India, which contains the territories of both Bangladesh and Pakistan.
+- Chanting Bharat Mata Ki Jai (Victory to Mother India) is seen by many as a form of patriotism and not necessarily Hindu nationalist.
+- Vande Mataram is often translated as "Praise Be to Thee, Mother" which is the title of a poem written by the popular Bengali writer Bankim Chandra Chattopadhyay that appears in Anandamath, which is his novel.
+- His novel was first published in the 1880's. It is a novel that has always been and always will be greatly favoured and liked by Hindu nationalists as it created a template for the ideal Hindu warrior who rises to fight against his cruel Muslim oppressors.
+- Anandamath is an example of how in the process of explaining and displaying the past, literature can also forge the future.
+- Although Vande Mataram was a much-loved snog during the struggle against the British, in today's world it is unfortunately conceived as a very different kind of nationalism, a bullying, coercive nationalism and people, Muslims in particular, many of whom are aware of the provenance of the poem Vande Mataram are forced to chant it as a form of ritual humiliation of some sort.
+- A modern version of the poem was hugely popularized in a 1990's recording by the singer A. R. Rahman.
+- In this way, a once loved slogan has become controversial in today's world.
+- It is quite usual to have a Bengali slogan being chanted in states who have a non-Bengali speaking population.
+- Slogans in India, whether it be chanted by protesters or mobs or by people in territories under military occupation are said outwards, for the country and the rest of the world to hear and recognise. It is often not in the local people's mother tounges.
+-

@@ -1,0 +1,8 @@
+- The Industrial Revolution began in England, though there is no exact date for it, it happened over quite a short period of time, from the middle of the 18th century onwards, in just about a 100 years , it changed the way in which people live life.
+- If Socrates, Ashoka or Julius Caesar had suddenly appeared in Akbar's Court in India, England or France in the early 18th century, they would have noticed multiple changes.
+- They might have approved of some of these ideas and might have disapproved of other, but they would've still recognised the world as ideas would not have differed much.
+- The first of the inventions in England came in 1738, when a man named Kay made the flying shuttle for cloth-weaving. Prior to this invention the thread in the shuttle in the weaver's hand needed to be carried across and through the other threads which were placed lengthwise, called the warp. This needed to be done slowly as well.
+- There was a problem regarding this and it was partly solved because of the invention by Hargreaves in 1764 of the spinning-jenny.
+- Other inventions by Richard Arkwright and others followed, water-power was introduced first, and later steam-power.
+- All these inventions were first implemented in the cotton industry and factories, or cotton-mills. The next industry to introduce new methods was the woollen industry.
+-

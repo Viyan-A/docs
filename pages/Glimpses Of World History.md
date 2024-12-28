@@ -1,0 +1,12 @@
+- Robert Clive established British rule in Bengal
+- Siraj-ud-Daula , then the Nawab of Bengal was frustrated by the British because they were not cooperating with his wishes
+- The Nawab therefore put many English soldiers in a black box with no ventilation , this led them to suffocate and die.
+- Hearing this the English took revenge in capturing Calcutta.
+- Robert Clive bribed the Nawab's minister , Mir Jafar , by forging a document
+- Due to this they won the battle , it was a small battle but an important one because it was the one which started British rule in India.
+- In 1764 , they won the Battle of Buxar which resulted in the Emperor at Delhi submitting to them.
+- Their rule in Bihar and Bengal was unchallenged.
+- They insisted on trading without paying the transit duties all other merchants dealing with home-made goods had to pay.
+- It took the British many years to defeat Tipu Sultan.
+- At this time Warren Hastings from England became the first Governor-General.
+-
